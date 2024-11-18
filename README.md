@@ -27,7 +27,7 @@ Nosso compromisso é com a educação pública e acreditamos que, ao fornecer es
 
 [**Planejamento de sequências didáticas](https://bit.ly/planeje_mais_rapido_e_melhor)** 
 
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/f926053a-3474-4faf-bb17-9c0355862887/Untitled.png)
+![alt text](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/f926053a-3474-4faf-bb17-9c0355862887/Untitled.png)
 
 https://bit.ly/planeje_mais_rapido_e_melhor
 
