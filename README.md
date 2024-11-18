@@ -25,51 +25,25 @@ Nosso compromisso é com a educação pública e acreditamos que, ao fornecer es
 
 ---
 
-[**Planejamento de sequências didáticas](https://bit.ly/planeje_mais_rapido_e_melhor)** 
-
-![alt text](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/f926053a-3474-4faf-bb17-9c0355862887/Untitled.png)
-
-https://bit.ly/planeje_mais_rapido_e_melhor
+[**Planejamento de sequências didáticas](https://bit.ly/planeje_mais_rapido_e_melhor)**  https://bit.ly/planeje_mais_rapido_e_melhor
 
 ---
 
-[**Navegue por desafios complexos de equidade em seu contexto**](https://bit.ly/desafio_equidade)
-
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/e35de319-7b93-4a7e-a490-120a2ddbaca7/544f4256-6f14-48fd-9120-80896bc9b20c.png)
-
-https://bit.ly/desafio_equidade
+[**Navegue por desafios complexos de equidade em seu contexto**](https://bit.ly/desafio_equidade) https://bit.ly/desafio_equidade
 
 ---
 
-[**Prepare devolutivas de observação de aula conforme a rubrica do Ensina Brasil**](https://bit.ly/prepare_boas_cois) 
+[**Prepare devolutivas de observação de aula conforme a rubrica do Ensina Brasil**](https://bit.ly/prepare_boas_cois)  https://bit.ly/prepare_boas_cois
 
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/f69da584-8134-4dfc-8653-2c9d923ed0f6/Untitled.png)
-
-https://bit.ly/prepare_boas_cois
-
-[**Assistente virtual com sugestões de gestão de sala de aula**](https://bit.ly/aula_nota10)
-
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/a0f0e9ab-dd07-4510-bf5c-60cf83749fae/Untitled.png)
-
-https://bit.ly/aula_nota10
+[**Assistente virtual com sugestões de gestão de sala de aula**](https://bit.ly/aula_nota10) https://bit.ly/aula_nota10
 
 ---
 
-[**Assistente JB! Encontre recursos na biblioteca da comunidade Hey Ciência](https://bit.ly/assitente_heyciencia)!**
-
-https://bit.ly/assitente_heyciencia
-
-![image.png](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/da25d230-e009-44be-a08e-0319308b6ac8/image.png)
+[**Assistente JB! Encontre recursos na biblioteca da comunidade Hey Ciência](https://bit.ly/assitente_heyciencia)!** https://bit.ly/assitente_heyciencia
 
 ---
 
-[**A Equidade com pertencimento ajuda educadores  promover a sensação de pertencimento para todos os alunos**](https://bit.ly/equidade_pertencimento)
-
-![Untitled](https://prod-files-secure.s3.us-west-2.amazonaws.com/a9f949c6-04b2-4ec8-ba23-cb3d5adb9944/11374bb9-400e-47f0-8814-5c991f73d8e8/Untitled.png)
-
-https://bit.ly/equidade_pertencimento
-
----
+[**A Equidade com pertencimento ajuda educadores  promover a sensação de pertencimento para todos os alunos**](https://bit.ly/equidade_pertencimento) https://bit.ly/equidade_pertencimento
 
 ---
 
